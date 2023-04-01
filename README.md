@@ -1,5 +1,3 @@
-#MY MODS TS BO2
-
 --------------------
 
 READ ME PLS
